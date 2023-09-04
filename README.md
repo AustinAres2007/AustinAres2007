@@ -1,2 +1,1 @@
-- Check discord if you want to get in contact with me
-- Austin Ares#0001
+- Check discord if you want to get in contact with me (navidrohim)
